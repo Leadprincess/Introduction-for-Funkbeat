@@ -1,6 +1,6 @@
 <img width="400" height="8" alt="IMG_9785" src="https://github.com/user-attachments/assets/94d9c66f-d06e-4125-a6fa-5fafb84ef102" />
 
-<img width="200" height="150" alt="Untitled363_20260812174949" src="https://github.com/user-attachments/assets/baa9fb4d-ac19-4541-8d0f-c812aec41b24" /> ${{\color{EABB72}\normalsize{\textsf{𝐅𝐮𝐧𝐤𝐛𝐞𝐚𝐭'𝐬 𝐈𝐧𝐭𝐫𝐨!!}}}}$
+<img width="200" height="150" alt="baa9fb4d-ac19-4541-8d0f-c812aec41b24" src="https://github.com/user-attachments/assets/a0972db0-ca3d-4ff9-b68e-4b289db6ed0f" />${{\color{EABB72}\normalsize{\textsf{𝐅𝐮𝐧𝐤𝐛𝐞𝐚𝐭'𝐬 𝐈𝐧𝐭𝐫𝐨!!}}}}$
 
 [𝐌𝐚𝐝𝐞 𝐛𝐲 𝐋𝐞𝐚𝐝𝐢𝐚 .](https://github.com/Leadprincess)
 
