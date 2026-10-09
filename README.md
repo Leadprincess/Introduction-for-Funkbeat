@@ -2,6 +2,8 @@
 
 <img width="200" height="150" alt="Untitled363_20260812174949" src="https://github.com/user-attachments/assets/baa9fb4d-ac19-4541-8d0f-c812aec41b24" /> ${{\color{EABB72}\normalsize{\textsf{𝐅𝐮𝐧𝐤𝐛𝐞𝐚𝐭'𝐬 𝐈𝐧𝐭𝐫𝐨!!}}}}$
 
+[𝐌𝐚𝐝𝐞 𝐛𝐲 𝐋𝐞𝐚𝐝𝐢𝐚 .](https://github.com/Leadprincess)
+
 <img width="400" height="8" alt="IMG_9785" src="https://github.com/user-attachments/assets/2cc3befe-290c-44f4-865e-4b49187a5682" />
 
 # 𝐈𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧. <img width="20" height="20" alt="4408ce6e" src="https://github.com/user-attachments/assets/8a74f99e-8660-495b-a747-4255ef95ff00" />
